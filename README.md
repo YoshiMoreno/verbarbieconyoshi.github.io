@@ -1,2 +1,2 @@
 # verbarbie 
-# ver a babie
+# ver a barbie
